@@ -1,0 +1,1 @@
+Made by [Avera9eJoe](http://forum.kerbalspaceprogram.com/threads/122259-WindowShine-v-5-Reflective-stock-windows-and-solar-panels-5-21-15)
